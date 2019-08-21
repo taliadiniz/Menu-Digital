@@ -1,2 +1,2 @@
 # Menu-Digital
-Equipe: Talia Diniz
+Equipe - [Talia Diniz] 
